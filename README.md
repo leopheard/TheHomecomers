@@ -6,7 +6,7 @@
 
 Hear from champions of small towns, rural lands and working-class communities—places Americans are encouraged to leave behind.<br>
 
-A national blind spot toward rural and working-class America is driving misleading headlines, broken politics, and dangerous fissures in our social fabric. The Homecomers with Sarah Smarsh brings you stories of folks who, as residents or advocates, remain committed to their complex, embattled homes. Join <a href="https://sarahsmarsh.com/">Sarah</a> in conversation with six champions of places that society would have them “get out” of—“homecomers” preserving and strengthening the vibrancy of small towns, rural lands, and misunderstood communities that headlines say are dying. Read the release <a href="https://thehomecomers.org/the-homecomers-press-release/">here.<br>
+A national blind spot toward rural and working-class America is driving misleading headlines, broken politics, and dangerous fissures in our social fabric. The Homecomers with <a href="https://sarahsmarsh.com/">Sarah Smarsh</a> brings you stories of folks who, as residents or advocates, remain committed to their complex, embattled homes. Join <a href="https://sarahsmarsh.com/">Sarah</a> in conversation with six champions of places that society would have them “get out” of—“homecomers” preserving and strengthening the vibrancy of small towns, rural lands, and misunderstood communities that headlines say are dying. Read the release <a href="https://thehomecomers.org/the-homecomers-press-release/">here.<br>
 
 Other ways to listen to the <a href="https://thehomecomers.org/how-to-listen-to-the-homecomers/">podcast here</a>.
 
